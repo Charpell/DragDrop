@@ -1,0 +1,1 @@
+[https://medium.com/backticks-tildes/drag-and-drop-with-html5-368a1bb72881](https://medium.com/backticks-tildes/drag-and-drop-with-html5-368a1bb72881)
